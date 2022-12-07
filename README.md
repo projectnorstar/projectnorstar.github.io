@@ -1,1 +1,1 @@
-# projectnorstar.github.io
+# you suck
